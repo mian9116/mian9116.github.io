@@ -8,4 +8,4 @@
 不加陌生 凡事講緣的佛系少女
 有事IG私訊我 除了上課 打遊戲回覆都很速度!!
 
-[我的Instagram](https://www.youtube.com/channel/UCrcTTnd9ppUeOviBbQRBTpg/featured)
+[我的YouTube](https://www.youtube.com/channel/UCrcTTnd9ppUeOviBbQRBTpg/featured) | [我的Instagram](https://www.instagram.com/yunju_mian/)
