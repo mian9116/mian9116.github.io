@@ -6,3 +6,5 @@
 喜歡寫字 寫文章 剪影片 打遊戲(◍︎ ´꒳` ◍︎) ♡
 
 [YouTube](https://www.youtube.com/channel/UCrcTTnd9ppUeOviBbQRBTpg/featured) | [Instagram](https://www.instagram.com/yunju_mian/)
+
+[可愛愛迦羅o(〃'▽'〃)o]()
